@@ -28,3 +28,5 @@
 * **Círculo com silhueta**: Muito usado em redes sociais e plataformas digitais para representar um avatar ou conta.
  
 * **Estrelas**: Elas representam orientação, inspiração e interligação, refletindo a ideia de uma rede onde cada ponto se conecta a outro — assim como equipes remotas trabalhando juntas.
+
+Dupla: Linda Isabele e Terezinha Josuely
